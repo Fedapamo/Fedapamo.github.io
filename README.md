@@ -4,8 +4,8 @@
 
 fedapamo@hotmail.com  
 
-github.com/Fedapamo  
+[Github](https://github.com/Fedapamo)  
 
-fedapamo.me  
+[My Page](fedapamo.me)  
 
-linkedin.com/in/fedapamo  
+[LinkedIn](https://www.linkedin.com/in/fedapamo)  
